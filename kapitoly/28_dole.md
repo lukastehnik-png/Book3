@@ -96,7 +96,7 @@ Tři. Dva.
 
 Někde nad nimi, nad stropem, nad Tišinou, věž vydechla.
 
-Abel se sklonil a položil dva prsty do okénka v její dlani.
+„Do Výše,“ zašeptal Abel, jak to dole šeptali všichni hladiči při každém Vdechu, aby věděli, proč to dělají. Pak se sklonil a položil dva prsty do okénka v její dlani.
 
 ---
 
