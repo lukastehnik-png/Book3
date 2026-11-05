@@ -1,7 +1,7 @@
 #!/usr/bin/env python3
 """Kontrola kapitol: slova, pomlčky, zakázané fráze, přírodní slova (k ruční kontrole perspektivy)."""
 import sys, re, glob
-ZAKAZANE = ["v tu chvíli","najednou si","uvědomil","srdce se jí sevřelo","srdce se mu sevřelo","ohlušující",
+ZAKAZANE = ["v tu chvíli","najednou si","uvědomil","uvědomoval","srdce se jí sevřelo","srdce se mu sevřelo","ohlušující",
  "čas jako by se zastavil","něco v ní se zlomilo","něco v něm se zlomilo","nicméně","v rámci","realizovat",
  "provést","nedokázala popsat","slovy nepopsateln","vlna emocí","jako by svět"]
 PRIRODA = r"\b(strom|list[íy]?\b|květ|kořen|peří|vosk|med\b|chleb|chléb|mouk|bavln|dřev|tráv|semen|semín|les[aeyů]?\b|pták|ptač|zvíř|kůr[ay]|ovoc|jabl|hmyz|motýl|psí|kočk|ryb[aéy]|louk|zelen|rostl|mech|houb|hnízd|křídl|kos[ae]?\b|rorýs|hejn)"
