@@ -20,4 +20,4 @@ Kap. 1 až 3: 3 kola + finální průchod (etapa 1), pak přejmenování.
 Kap. 4 až 8: záměr, zápis, automatická kontrola, celé přečtení a opravy (logika, gramatika, klišé, přírodní slova), druhé čtení klíčových míst.
 
 ## Další krok
-Kap. 9 „Ethan" (pohled syna, Škola Směru).
+Kap. 12 „Hlubina". Hotovo 9 až 11 (Ethan; Vrácená jména s Milem; Malík: první Odejmutí Grace, udala Tess, Owen promluvil „Bolí?").
