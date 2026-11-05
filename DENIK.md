@@ -49,3 +49,5 @@
 **23. Kap. 7.** Bohumilova metafyzika jednou větou: bolest jako voda, ruce otevřené. Útěcha souhlasí s přesunem ze zvědavosti: první náznak, že systém chce Grace pozorovat, ne jen trestat.
 
 **24. Kap. 8.** První zpěv Grace. Kabel vychladne. Ruth kryje. Jméno nelze vrátit.
+
+**25. Kap. 9 až 12.** Ethan slyší lež jako skřípnutí kovu; jediný hlas bez kovu je matčin v Mělčině. Ve stejné noci, kdy Grace poprvé leží v Mělčině, Ethan poprvé stojí: návnady fungují oběma směry a oba se jim začínají vzpírat. Milo = Bohumilův učeň (spojuje Grace s Hlubinou a s věží). Hlubina = archiv starého světa, na kterém Útěcha stojí a který nemůže smazat; tam se nesklízí. Zpěv kosa: druhý posvátný okamžik. Od kap. 12 smí Grace ve své perspektivě používat přírodní slova, která se naučila (strom, listí, kos), ale vzácně a s vědomím jejich váhy.
