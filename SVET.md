@@ -107,3 +107,11 @@ Každá škola člověka „programuje": učí jedinou dovednost a jedinou pravd
 - Mrtví z Tišin jdou do pecí v tavírnách Prostředníku. Popel se odváží do míchárny a míchá do kompozitu, ze kterého se staví panely bloků, zdi, chodníky. Celé město je postavené z mrtvých. Nikdo na to nemyslí.
 - V márnici Tišiny nejsou kabely ve zdech (mrtví nedávají), proto je tam zima.
 - Kronika ukazuje tváře umírajících s číslem. Žádná tvář nemá pod sebou méně než 40; nula se nikdy neukazuje (Lydia vybírá tváře).
+
+## Co Útěcha vidí
+- Slyší všechno přes šev a cítí tělo (tep, dech, teplotu). Vidí jen tam, kde jsou oči: kamery na náměstích, v sesternách Tišin, na lisu, ve Škole, kamera Kroniky. Pod rukávem, ve tmě, ve skladu prádla nevidí.
+- Kresba do vody v Mělčině mizí; bez lidského svědka ji nelze upřesnit (Sam).
+
+## Prsteník a porody
+- Rodičky mají porodní korunku. Novorozenec se matce odebírá hned po porodu, bez dotyku (porodní výdej). Otcovský dotek novorozence (1 minuta) byl kdysi povolen, později zrušen.
+- Agnes: „nulová minuta" (dítě na matčině kůži 60 vteřin). Útěcha ji toleruje, protože následný výdej po odebrání je vyšší. Něha, kterou systém toleruje, protože se vyplácí.
