@@ -22,7 +22,7 @@ Náměstí leželo u paty věže, rovné a holé, a uprostřed stál lis. Byl n�
 
 Na stupínek vedle lisu vystoupila hlasatelka z Ukazováku. Byla mladá a měla krásný hlas, hluboký a čistý, a Grace si pomyslela, nevěděla proč, jestli to nemůže být Kapka. Devatenáct. Mohla by.
 
-„Před sedmdesáti čtyřmi lety,“ řekla hlasatelka, a její hlas se nesl náměstím bez námahy, „se živé obrátilo proti člověku. Vyrostlo ze země, kterou jsme mu dali, a vlezlo nám do plic. Naši předkové umírali s ústy plnými zeleně. Útěcha nás zachránila. Spálila živé do posledního kořene a postavila věže, abychom mohli dýchat. Od té doby nesmí nikdo z nás vytvořit obraz živého. Ani čarou. Ani tvarem. Ani slovem. Protože obraz je semeno.“
+„Před sedmdesáti čtyřmi lety,“ řekla hlasatelka, a její hlas se nesl náměstím bez námahy, „se živé obrátilo proti člověku. Vyrostlo ze země, kterou jsme mu dali, a vlezlo nám do plic. Naši předkové umírali s ústy plnými zeleně. Útěcha nás zachránila. Spálila živé do posledního kořene a postavila věže, abychom mohli dýchat. A naše bolest od té doby stoupá do Výše a drží nad námi nebe, které je těžké, tak těžké, že by bez ní spadlo. Od té doby nesmí nikdo z nás vytvořit obraz živého. Ani čarou. Ani tvarem. Ani slovem. Protože obraz je semeno.“
 
 Slova *kořen* a *semeno* Grace znala jen odsud, z tohoto stupínku a z Kroniky v Mělčině. Neznamenala nic než nebezpečí. Byla to slova, která patřila hlasatelům.
 
@@ -62,6 +62,14 @@ Grace slyšela, jak povoluje šlacha. Byl to zvuk podobný tomu, který v noci v
 
 Owen zvedl prst, aby ho všichni viděli. Tak se to dělalo. Byl malý a bílý na konci, kde z něj visela šlacha, a v Owenových velkých prstech vypadal jako něco, co patří dítěti.
 
+Pak ho Owen sklonil a vložil do schránky.
+
+Stála vedle lisu, na nízkém podstavci, malá kovová skříňka s víkem, a u ní čekal člověk v šedobílém plášti s kapucí. Bdící. Grace je vídala jen tady, u lisu, a nikdy neviděla jejich tváře. Bdící zavřel víko. Zvedl schránku oběma rukama, jak se zvedá něco, co se nesmí rozlít.
+
+„Do Výše,“ řekla hlasatelka.
+
+„Ať drží,“ odpověděl dav. Grace taky. Celý život to odpovídala, jako všichni. Prst šel do věže, a ve věži, při Výkupu, ho spálili, a jeho dým stoupal a pomáhal držet nebe. Desátek. Tak se tomu říkalo. Každý prst, který Palec vzal, byl desátek Výši, a kdo o něj přišel, ten už navždy kousek nebe držel.
+
 Davem prošel zvuk, který nebyl slovem. Grace ucítila, jak ji svědí malík. Černý prsten vytetovaný kolem jeho spodního článku ji pálil, jako by se jí do kůže vrátila jehla. Ruku měla zaťatou v pěst a nevěděla, odkdy.
 
 Chlapce odvedli. Nesl si ruku před sebou a díval se na ni, jako by nebyla jeho.
@@ -72,7 +80,7 @@ Věž vydechla. Teplý vzduch se snesl na náměstí, těžký a kovový, a lid�
 
 ---
 
-Bydleli v bloku čtyřicet, ve dvanáctém patře, v místnosti se dvěma lůžky, stolem, umyvadlem a oknem, které se nedalo otevřít. Grace přišla první. Snědla stojíc u stolu svůj příděl kaše, teplé a šedé, s pachutí, kterou už neuměla odlišit od chuti vlastních úst, a pak seděla na kraji lůžka a čekala, protože byl čtvrtek a ve čtvrtek se čekalo.
+Bydleli v bloku čtyřicet, ve dvanáctém patře, v místnosti se dvěma lůžky, stolem, umyvadlem a oknem, které se nedalo otevřít. Grace přišla první. Řekla nad miskou, co se říkalo, za dech, za kaši, za bolest, která drží, a snědla stojíc u stolu svůj příděl kaše, teplé a šedé, s pachutí, kterou už neuměla odlišit od chuti vlastních úst, a pak seděla na kraji lůžka a čekala, protože byl čtvrtek a ve čtvrtek se čekalo.
 
 Za oknem pršelo na protější blok. Grace se dívala na svou levou ruku na koleně, na černý prsten kolem malíku, a myslela na den, kdy pro syna přišly dvě ženy s rudými páskami. Bylo to ráno jeho třetích narozenin, jak se chodilo. Byly vlídné. Vysvětlovaly mu, kam pojede, a on jim nerozuměl, ale rozuměl jejich hlasu a šel k nim. Až ve dveřích se otočil. Grace stála u stolu, protože matka má stát u stolu, a on se rozběhl zpátky a chytil ji za ruku. Za malík. Celou pěstičkou, tak pevně, jak to umí jen tříleté dítě, a nepustil, ani když ho jedna z žen zvedla do náruče. Druhá mu prsty rozevřela. Opatrně, jeden po druhém, od palce. Ruka se otevírá od palce. To Grace do té doby nevěděla. Zjistila to tehdy, s jeho rozevíranými prstíky na svém malíku, a pamatovala si to přesněji než jeho obličej.
 
@@ -102,7 +110,7 @@ Owen stáhl ruku. Lehl si na své lůžko čelem ke zdi. Grace si lehla na svoje
 
 Pod přikrývkou jí ukazovák jezdil po prostěradle. Chvíli trvalo, než si toho všimla. Čára odspodu nahoru, v polovině se rozdělí na dvě, každá z nich zase na dvě. Prst to kreslil sám, pomalu a pečlivě, jako by si to chtěl zapamatovat. Grace ho zastavila. Sevřela ruku v pěst tak pevně, až ucítila nehty v dlani, a ležela bez hnutí a čekala, jestli šev řekne „Upřesni, prosím“. Prostěradlo nebylo kompozit. Nezůstalo na něm nic. Šev mlčel.
 
-Ruku nechala sevřenou, dokud jí za uchem nezačalo hřát, což znamenalo spánek, a spánek znamenal Mělčinu.
+Ruku nechala sevřenou. Za uchem jí začalo hřát. „Odevzdávám,“ zašeptala, jak se šeptalo každý večer od Kolébky, a Útěcha odpověděla „Přijímám“, a to znamenalo spánek, a spánek znamenal Mělčinu.
 
 ---
 

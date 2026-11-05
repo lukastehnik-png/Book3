@@ -112,7 +112,9 @@ Grace se na to dívala dlouho.
 
 Bohumil neodpověděl. Když se k němu otočila, nedíval se na věž. Ležel na zádech, s rukama podél těla, dlaněmi nahoru, a díval se přímo nad sebe, do mraků.
 
-„Lehněte si,“ řekl.
+„Do Výše,“ řekla Grace sama sobě. „Aby drželo nebe.“
+
+„Tak vás to učí,“ řekl Bohumil. Díval se pořád nahoru, do mraků. „Že nebe je těžké a vy ho musíte držet. Bolestí. Prsty. Lidmi.“ Zakašlal. „Nebe nikdo nedrží, děvče. Nikdy nikdo nedržel. Nebe drží nás.“ Odmlčel se. „Lehněte si.“
 
 Grace si lehla. Vedle něj, na studený štěrk, na záda. Mraky byly nad ní a vítr šel přes ni a ona ležela a cítila pod sebou celou tu budovu, Tišinu, s jejími čtrnácti lůžky a dvaceti lůžky dole a hukotem ve zdech, a nad sebou nic.
 

@@ -240,6 +240,10 @@ Výtěžek: vysoký. Vysoký. Vysoký.
 
 Dav dával. Grace to cítila v těle, ten tlak, to sevření, které šlo z lidí kolem ní, ze všech těch ramen, která se o ni otírala. Dávali všechno. Celé náměstí se svíralo jako pěst, a z pěsti si to brali.
 
+U každého lisu stála schránka, a Bdící v šedobílých pláštích je třikrát vyměnili. Plné odnášeli do věže oběma rukama, pomalu, a dav pokaždé odpověděl: Ať drží. Grace to slyšela z tisíce úst a poprvé v životě to neřekla.
+
+Před polednem Lydia zazpívala Píseň Výše. Zpívala se jen o Dni očisty a v Noci Odvodu, a dav ji zpíval s ní, slova, která všichni znali a nikdo jim nerozuměl. Kdo nemá tváře, přijmi. Kdo nemá rukou, vezmi. Pij po kapkách. A nech nás žít, abychom měli co dát. Lydia zpívala čistě a krásně a úplně bez tvaru, a Grace slyšela, že ty věty nejsou modlitba. Byly to podmínky. Jako v přehledu.
+
 Ve dvanáct Lydia sestoupila ze stupínku.
 
 Šla kolem Grace. Blízko. Nezastavila se. Nic neřekla. Ani do týdne, ani nic.

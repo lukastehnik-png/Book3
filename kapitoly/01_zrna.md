@@ -76,7 +76,7 @@ Potom Edith převázala. Ránu vyčistila, stáhla okraje k sobě a přelepila j
 
 ---
 
-Tišina nebyla tichá. Čtrnáct lůžek, čtrnáct korunek, čtrnáct dechů a každý jiný: chrčivý, mělký, pískavý a jeden pravidelný jako stroj, protože to byl stroj. Ze stěn vycházel hukot, nízký a stálý, ve kterém Grace žila tak dlouho, že ho slyšela, jen když přestal. Dráty z korunek vedly do lišt pod stropem, lišty do zdi a zeď byla na dotek teplá, k ránu skoro horká. Všechno, co se tu za noc nasbíralo, teklo stěnou vzhůru do věže a ve věži se to měnilo ve vzduch. Tak se to učilo. Tak to říkala Útěcha a tak to stálo nad vchodem do každé Tišiny, kovovými písmeny, která v noci svítila:
+Tišina nebyla tichá. Čtrnáct lůžek, čtrnáct korunek, čtrnáct dechů a každý jiný: chrčivý, mělký, pískavý a jeden pravidelný jako stroj, protože to byl stroj. Ze stěn vycházel hukot, nízký a stálý, ve kterém Grace žila tak dlouho, že ho slyšela, jen když přestal. Dráty z korunek vedly do lišt pod stropem, lišty do zdi a zeď byla na dotek teplá, k ránu skoro horká. Všechno, co se tu za noc nasbíralo, teklo stěnou vzhůru do věže a ve věži se to měnilo ve vzduch. A co zbylo, stoupalo ještě výš, nad věž, nad mraky, do Výše, a drželo nebe, aby nespadlo na město. Tak se to učilo. Tak to říkala Útěcha a tak to stálo nad vchodem do každé Tišiny, kovovými písmeny, která v noci svítila:
 
 KDO TRPÍ, DÝCHÁ ZA DRUHÉ.
 

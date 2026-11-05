@@ -178,7 +178,11 @@ Grace se nepohnula.
 
 „Jak?“
 
-„Ne jako rorýsi. Rorýsi křičí. Kos zpíval.“ Bohumil zavřel oči. „Jako by mluvil s někým, kdo je hrozně daleko. Řekl něco a pak počkal. A zase řekl něco jiného, nikdy dvakrát stejně. A počkal. A nevadilo mu, že mu nikdo neodpovídá. Zpíval dál, dokud nebyla úplná tma. Někdy i potom.“
+„Ne jako rorýsi. Rorýsi křičí. Kos zpíval.“ Bohumil zavřel oči. „Jako by mluvil s někým, kdo je hrozně daleko. Řekl něco a pak počkal. A zase řekl něco jiného, nikdy dvakrát stejně. A počkal. A nevadilo mu, že mu nikdo neodpovídá. Zpíval dál, dokud nebyla úplná tma. Někdy i potom.“ Bohumil se odmlčel. „Babička říkala, že kos se modlí.“
+
+„Co je to?“
+
+„Modlitba?“ Stařec se na ni díval dlouho, jako by zvažoval, jestli jí to slovo může dát. „Když mluvíte s někým, koho nevidíte. A nečekáte, že odpoví. Ani že něco dostanete. Jen mluvíte, protože víte, že tam je.“ Zavřel oči. „Ne jako u vás. U vás se dává, aby nebe nespadlo. To je obchod, děvče. Modlitba nic nekupuje.“
 
 Grace měla ruce sepjaté v klíně tak pevně, že ji bolely klouby.
 

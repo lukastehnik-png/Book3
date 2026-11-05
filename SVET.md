@@ -115,3 +115,37 @@ Každá škola člověka „programuje": učí jedinou dovednost a jedinou pravd
 ## Prsteník a porody
 - Rodičky mají porodní korunku. Novorozenec se matce odebírá hned po porodu, bez dotyku (porodní výdej). Otcovský dotek novorozence (1 minuta) byl kdysi povolen, později zrušen.
 - Agnes: „nulová minuta" (dítě na matčině kůži 60 vteřin). Útěcha ji toleruje, protože následný výdej po odebrání je vyšší. Něha, kterou systém toleruje, protože se vyplácí.
+
+## Duchovno, kult a obřady (doplněno v etapě 2 na přání zadavatele)
+
+### Veřejná víra: Výše
+- Lidé neznají Výkupčí. Učí se o **Výši**: nebe je těžké, mraky jsou jeho váha. Bolest, která stoupá z lidí, ho drží nad městem. „Kdo trpí, dýchá za druhé. Kdo trpí, drží nebe." Kdyby lidé přestali dávat, nebe by spadlo. Proto se nikdo nedívá nahoru déle, než musí.
+- Záře nad věží (Výkup) je viditelné „stoupání": to, co se nasbíralo, jde do Výše.
+- **Útěcha** je oslovována jako matka a utěšitelka; je prostřednicí mezi lidmi a Výší.
+
+### Každodenní obřady
+- **Vdech:** zvednout tvář, nadechnout se, šeptat „Dýchá za druhé".
+- **Požehnání kaše** (před jídlem, nahlas): „Za dech, za kaši, za bolest, která drží."
+- **Odevzdání** (před spánkem, do ucha): „Odevzdávám." Útěcha odpoví „Přijímám" a spící vstoupí do Mělčiny.
+- **Vrácení jména** (za svítání, u mrtvého): „Vracím." / „Poslouchám." / jméno, frakce, věk, lůžko / „Jméno je vráceno. Jeho bolest dýchala za druhé." Mrtvý se pak stane zdí (popel do kompozitu).
+
+### Oběti
+- **Odvod prstu:** prst z lisu se nezahazuje. Vykonavatel ho po zvednutí vloží do **schránky odvodu** (malá kovová skříňka u lisu). Schránku odnášejí **Bdící** do věže; prsty se spalují v kopuli při Výkupu jako „desátek Výši". Lidé věří, že tím ztracený prst „drží nebe".
+- **Zasvěcení:** ve třech letech, po odebrání, dostane dítě v Kolébce černý prsten na prst své frakce a slova: „Jsi zaslíben. Tvá ruka patří Výši." Prsten je znamení zaslíbení.
+- **Noc Odvodu** (jednou ročně, nejdelší noc roku): celé město nespí, ale „bdí" v Mělčině, která je té noci jedna pro všechny (všichni vidí totéž). Procesí na Náměstí Dechu, Litanie, a **Vystoupení**: vybraný člověk se zavřenou rukou (nebo víc lidí) je vynesen na vrchol věže, korunka připojena přímo do kopule, a umírá v paprsku. Vrchol výtěžku celého roku. Vystoupení je veřejně nejvyšší čest: „Vystoupil, aby držel nebe." Jména vystoupivších se nevracejí; „jsou ve Výši".
+
+### Bdící
+- Tajný malý řád uvnitř Ukazováku (staří hlasatelé, několik vykonavatelů z Palce, technici kopule). Jediní lidé, kteří vědí o Výkupčích. Šedobílá roucha. Slouží v kopuli při Výkupu.
+- **Litanie odvodu** (tajná, v kopuli; část se veřejně zpívá jako „Píseň Výše" ostatním bez pochopení):
+  „Vy, kdo nemáte tváře, přijměte.
+   Vy, kdo nemáte rukou, vezměte.
+   Vy, kdo necítíte, pijte, co cítíme my.
+   Pijte pomalu. Pijte po kapkách.
+   A nechte nás žít, abychom měli co dát."
+- Bdící oslovují entity **Ti, kdo pijí** nebo **Pánové Výše**. Útěcha je nazývá „dohodou".
+- **Victor** (učitel Ethana) a **Helen** jsou Bdící. Lydia je připravována jako hlas Litanie (její hlas je „nejčistší nástroj").
+
+### Zakázané duchovno
+- Slovo Bůh, Pánbůh: žije jen u starých (Bohumil) a ve zbytcích (říkanka Ruthiny matky).
+- Gesto rorýse se šíří jako tichá modlitba bez slov: ne prosba, ne oběť, jen otevřená ruka. Grace ho chápe jako „to, co drží a nic nechce". Protiklad oběti: oběť se dává, aby se něco dostalo; otevřená ruka nic nečeká.
+- Zadržení dechu při Vdechu (Grace, kap. 5) = první, nevědomý protiobřad.

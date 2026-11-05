@@ -10,7 +10,7 @@ Za týden ho přeřadili.
 
 „Ukaž,“ řekl Victor.
 
-Ve třídě sedělo čtyřicet kluků v pěti řadách, každý s bílou páskou na levém rukávu a s černým prstenem kolem ukazováku pravé ruky, a všichni měli ruce na lavicích, dlaněmi dolů, prsty natažené. Tak se sedělo při cvičení. Ruka připravená.
+Ve třídě sedělo čtyřicet kluků v pěti řadách, každý s bílou páskou na levém rukávu a s černým prstenem kolem ukazováku pravé ruky, prstenem zaslíbení, který jim vytetovali v Kolébce ve třech letech se slovy, která si nikdo nepamatoval a všichni znali: Jsi zaslíben, tvá ruka patří Výši, a všichni měli ruce na lavicích, dlaněmi dolů, prsty natažené. Tak se sedělo při cvičení. Ruka připravená.
 
 Z reproduktoru nad tabulí se ozval ženský hlas. Byl unavený a měkký, hlas staré ženy.
 

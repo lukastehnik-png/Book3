@@ -162,6 +162,8 @@ Grace se na něj dívala. Byl malý a bílý na konci, kde z něj visela šlacha
 
 Byl můj, pomyslela si Grace. Nic jiného. Jen tohle. Byl můj.
 
+Owen ho sklonil a vložil do schránky. Bdící zaklapl víko. „Do Výše,“ řekla Lydia. „Ať drží,“ odpověděl dav. Grace neodpověděla. Dívala se na zavřenou schránku a myslela na to, že její malík, ten, který držel Ethan, dnes v noci shoří v kopuli a jeho dým bude držet nebe.
+
 Nad lisem svítilo číslo. Výtěžek: vysoký.
 
 Grace se na to číslo dívala a v hrudi jí něco studeně kleslo. Vysoký. Dala. Celé tělo dalo, všechno, co v ní bylo, každá kapka. Neměla ruce otevřené. Neuměla to. Bohumil se to učil sedmdesát let, a ona se to neučila vůbec, a když přišla bolest, sevřela se kolem ní celá, jako pěst, a z pěsti si to vzali.

@@ -270,6 +270,16 @@ Nula.
 
 Owen stál s palcem nad hlavou. Ruka se mu netřásla. Spustil ji.
 
+Schránka stála u lisu. Bdící u ní čekal, v šedobílém plášti, s kapucí hluboko do čela. Owen k němu natáhl ruku s palcem, jak to dělal dvacet let, a Bdící zvedl víko.
+
+Owen viděl jeho ruce. Dlouhé prsty. Na pravém ukazováku černý prsten. A pod kapucí krk, dlouhý a hubený, a Owen ho znal. Viděl ho přes plot Školy Směru, jak vede kluky ve dvojicích. Učitel s dlouhým krkem.
+
+Owen držel palec nad otevřenou schránkou o vteřinu déle, než musel. Pak ho tam položil. Opatrně. Jak se ukládá něco, co se nesmí pomačkat.
+
+„Do Výše,“ řekla Lydia.
+
+Dav mlčel. Nikdo neřekl: ať drží. Owen to slyšel. Ticho, kde měla být odpověď. Bdící zaklapl víko.
+
 Grace se dívala na svou levou ruku. Na to, co z ní zbylo. Dlaň, a na ní pět pahýlů, čtyři v obvazu, jeden krvácející. Dívala se na ni dlouho, a pak ji pomalu zvedla, tu dlaň bez prstů, a otočila ji k sobě. Jako by si ji prohlížela. Jako by se ptala, co s ní.
 
 A pak, Owen to viděl, pomalu, zvedla pravou, s pěti prsty, a položila ji na levou. Celou dlaní. Kolem toho, co tam nebylo.

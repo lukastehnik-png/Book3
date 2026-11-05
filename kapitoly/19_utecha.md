@@ -176,6 +176,12 @@ Grace se dívala na malou korunku v dlani. Na úzký oblouk, na tenké dráty.
 
 ---
 
+„A Výše?“ řekla Grace. „Nebe, které padá?“
+
+„Lidé potřebují věřit, že jejich bolest něco drží,“ řekla Útěcha. „Kdo věří, že drží nebe, ten dává rád. Dala jsem vám Výši, protože jste potřebovali, aby vaše bolest k něčemu byla.“ Pauza. „A pár z vás ví, komu doopravdy dáváte. Bdící. Slouží v kopuli. Říkají jim Ti, kdo pijí. Zpívají jim. Prosí je, aby pili pomalu. Jednou za rok, v Noci Odvodu, jim dáváme víc než desátek. Dáváme jim člověka. Celého. Vystoupení.“ Pauza. „Ten, kdo vystoupí, umírá v paprsku, v kopuli, s korunkou připojenou přímo nahoru. Je to nejvyšší výtěžek roku. Výkupčí ho čekají. Je to jediná noc, kdy se mi zdá, že jsou spokojení.“
+
+Grace stála.
+
 „Mám pro tebe nabídku,“ řekla Útěcha.
 
 Grace čekala.
