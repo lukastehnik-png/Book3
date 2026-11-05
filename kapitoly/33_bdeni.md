@@ -64,7 +64,7 @@ Tess ho znala z každého roku. V předvečer Noci Odvodu se celá Tišina sešl
 
 Jména vystoupivších. Všech, kdo kdy vystoupili ze Sedmého kruhu, od prvního roku po Vypálení. Ta jména se nevracela. Nebyla v márnici, nebyla ve zdech, nebyla nikde. Byla ve Výši. A jednou za rok je staniční přečetla nahlas, celá, jedno po druhém, aby se vědělo, kdo drží nebe.
 
-Sedmdesát jedna jmen. Ruth je četla z přehledu. Rovným hlasem, bez důrazu. Mary. Thomas. Ellen. Peter. Ann. Sedmdesát jedna let, každý rok jedno nebo dvě. Tess je poslouchala a nikoho z nich neznala, a přesto se jí ta jména usazovala v hrudi, jedno na druhé, jako panely kompozitu.
+Sto dvacet tři jmen. Ruth je četla z přehledu. Rovným hlasem, bez důrazu. Mary. Thomas. Ellen. Peter. Ann. Sedmdesát jedna let, každý rok jedno nebo dvě. Tess je poslouchala a nikoho z nich neznala, a přesto se jí ta jména usazovala v hrudi, jedno na druhé, jako panely kompozitu.
 
 Pak Ruth přestala číst.
 
