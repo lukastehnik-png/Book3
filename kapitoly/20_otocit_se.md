@@ -94,7 +94,7 @@ Ležel do rána. Držel se za malík.
 
 ---
 
-Tobyho našel ve skladu za kuchyní.
+Tobyho našel druhý den ve skladu za kuchyní.
 
 Toby tam pracoval od Odejmutí. Ve třídě se s jedním malíkem ještě dalo sedět, ale Victor řekl, že udaný ukazovák má nejdřív dva měsíce nosit misky, aby si pamatoval, co znamená, když se ukáže na něj. Toby nosil misky. Myl je v dřezu, horkou vodou, a skládal je na sebe, sto misek, dvě stě, a když Ethan vešel, nepodíval se na něj.
 
@@ -194,7 +194,7 @@ Odešla k Gideonovi.
 
 ---
 
-V noci stál v Mělčině.
+O pět nocí později stál v Mělčině.
 
 Šel. Rovně, zády, jak se učil. A za ním, daleko, někdo běžel. Slyšel vodu. Slyšel dech. Slyšel hlas.
 
