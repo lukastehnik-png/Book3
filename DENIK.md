@@ -33,3 +33,19 @@
 **16. Finální průchod.** Sjednocena chronologie s SVET.md: Zelená horečka začala před 74 lety (hlasatelka), Vypálení před 71. Bohumil (narozen před Vypálením) nemohl mít Kolébku, opraveno. Doplněn SVET o slovo Bůh a o dole. Zkontrolováno: žádné pomlčky v kapitolách.
 
 **17. Rozsah.** 5 789 slov. Neprodlužoval jsem dál; každá další scéna by byla výplň před kapitolou 4, která patří do další etapy.
+
+## Etapa 2
+
+**18. Jména.** Zadavatel chce spíše anglická jména. Vymyslel jsem pro to důvod uvnitř světa: Seznam bere jména z mrtvého jazyka, aby nic neznamenala. Grace = milost; Bohumil vysvětlí význam. Bohumil zůstává český: jediné jméno s významem, starší než Seznam. Útěcha ho proto nemůže „vrátit" (pointa kap. 8).
+
+**19. Délka kapitol.** Kapitoly mi přirozeně vycházejí 2 200 až 2 600 slov. Natahovat je nechci. Raději víc kapitol: plán rozšířen na 38.
+
+**20. Kap. 4.** Zkouška na umírajícím dítěti je nejkrutější místo části I. Grace projde. Motiv ruky: dítě ji chytí za malík jako kdysi Ethan a ona mu prsty rozevře od palce. Dole ve Škole „okénka" (jediná okna v tomhle světě, která se otvírají, jsou v těle).
+
+**21. Kap. 5.** Korunka = koruna stromu. Útěcha slyší vše, ale potřebuje lidskou ruku (svědectví): Bohumil to vyslovil. Edith umírá se třemi tóny, výtěžek padá na nulu; Ruth to slyší a nic neřekne.
+
+**22. Kap. 6 (Owen).** Kost má hlas. Rukavice si nesundává kvůli „citu", ale kvůli temeni novorozence pod palcem. Odpoví Útěše „Spí": pravda, která je lží.
+
+**23. Kap. 7.** Bohumilova metafyzika jednou větou: bolest jako voda, ruce otevřené. Útěcha souhlasí s přesunem ze zvědavosti: první náznak, že systém chce Grace pozorovat, ne jen trestat.
+
+**24. Kap. 8.** První zpěv Grace. Kabel vychladne. Ruth kryje. Jméno nelze vrátit.

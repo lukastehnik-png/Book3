@@ -86,7 +86,7 @@ Owen přišel v poledne. Pozdravil kývnutím. Šel k umyvadlu a začal si mýt 
 
 Byli připraveni. Za třináct let to stihli tolikrát, že už ani nevěděli, jak to bylo poprvé. Owen zvedl pravou ruku a položil jí dlaň na zátylek, tam kde začínají vlasy. Grace mu položila dlaň na hrudní kost, mezi klíční kosti a srdce. To byla určená místa. Všechno jiné bylo nepřidělené.
 
-Seděli a dívali se každý jinam. Owenova dlaň byla horká a ztěžklá a voněla mýdlem, pod mýdlem kovem a pod kovem jím, a ten poslední pach Grace znala z let, kdy mezi nimi v noci spávalo dítě a jeho dech byl všude. Pod svou dlaní cítila jeho srdce. Bilo pomalu, pravidelně, jako by se nic nestalo. Počítala údery, protože počítat bylo snazší než myslet. Šedesát jedna. Šedesát dva.
+Seděli a dívali se každý jinam. Owenova dlaň byla horká a ztěžklá a voněla mýdlem, pod mýdlem kovem a pod kovem jím, a ten poslední pach Grace znala z let, kdy u ní v noci spávalo dítě a jeho dech byl všude, i na Owenovi. Pod svou dlaní cítila jeho srdce. Bilo pomalu, pravidelně, jako by se nic nestalo. Počítala údery, protože počítat bylo snazší než myslet. Šedesát jedna. Šedesát dva.
 
 Mezi jejich boky zůstávala na lůžku mezera, široká asi jako tříleté tělo. Nikdy o něm nemluvili. Ani jednou za devět let. Nemluvit bylo to jediné, co mohli dělat spolu.
 
