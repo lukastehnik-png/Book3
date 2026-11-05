@@ -1,12 +1,14 @@
 # 14. Sam
 
-Rampa za márnicí vedla na dvůr a ze dvora do uličky, kudy jezdily vozíky z tavírny. Každé ráno před svítáním si tu nosiči z Prostředníku vyzvedávali mrtvé. Grace je vyvážela ven, jednoho po druhém, na kovových nosítkách s kolečky, a nosiči je přebírali, přehazovali na svůj vozík a odváželi. Nikdy nic neříkali. Někdy kývli.
+Rampa za márnicí vedla na dvůr a ze dvora do uličky, kudy jezdily vozíky z tavírny. Každé ráno před svítáním si tu nosiči z Prostředníku vyzvedávali mrtvé. Grace je vyvážela ven, jednoho po druhém, na kovových nosítkách s kolečky, a nosiči je přebírali, přehazovali na svůj vozík a odváželi. Mluvili jen to, co se mluvit mělo. Do zdi, řekla Grace u každého, jak se to říkalo při předání. Ať drží, odpověděl nosič. Popel do kompozitu, kompozit do zdi, zeď drží město, město drží nebe. Tak to šlo, kruh za kruhem, a nikdo se nezastavil, aby se zeptal, co drží zeď.
 
 Ten den byl mezi nimi nový.
 
 Grace si ho všimla, protože vzal nosítka jinak než ostatní. Ostatní je brali za oba konce a tahali, rychle, aby to měli za sebou. On je chytil jen pravou rukou a levou podložil zespodu, opatrně, ohnutou v lokti, a když přehazoval fólii na vozík, udělal to pomalu, jako se ukládá něco, co se nesmí pomačkat.
 
 Na levé ruce mu chyběly dva prsty. Malík, starý pahýl, zhojený do lesklé růžové kůže. A prsteník. Ten byl ještě v obvazu.
+
+Neřekl ať drží. Grace si toho všimla, protože to chybělo, jako chybí zub.
 
 Grace stála na rampě a dívala se na něj, a on se otočil a podíval se na ni.
 

@@ -58,6 +58,7 @@ Osa části IV: **Noc Odvodu** (výroční obětní obřad) a **Vystoupení**. �
 
 ## Záznam změn
 - v1 (etapa 1): první návrh, 4 části.
+- v6 (konec etapy 2): vložena kap. 39 Helen (rozpad obřadu Bdících), Jméno → 40, Svítání → 41. Kniha má 41 kapitol.
 - v5: na přání zadavatele víc duchovna a obřadů: Výše (nebe drží bolest), denní obřady, desátek prstů, zasvěcení, Bdící, Litanie, Noc Odvodu a Vystoupení jako osa finále. Krátké obřadní vložky doplněny zpětně do kap. 1, 2, 5, 8, 9, 11, 19, 22, 25.
 - v4: rozšířeno na 40 kapitol (průměrná délka kapitoly ≈ 2 300 slov); kap. 25 přejmenována na Pěst; přidány Tess a Ticho (Útěcha).
 - v3: rozšířeno na 38 kapitol podle skutečné délky kapitol; přidány kap. Sam, Ruth, Otevřené ruce, Hlas, Čtvrtek, Jméno.

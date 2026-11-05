@@ -12,6 +12,20 @@ Dole se křičelo v rytmu Vdechu.
 
 Vyšla zbytek schodů rychle a v šatně si dlouho myla ruce, i když na nich nic nebylo.
 
+Na oddělení už stály ostatní. Ve vstupní hale, pod kovovými písmeny, která v noci svítila, jak se stávalo na začátku každé noční. Pět hladiček v řadě, Ruth před nimi s přehledem. Grace se postavila na kraj.
+
+„Slib,“ řekla Ruth.
+
+Řekly ho spolu. Grace ho říkala jedenáct let, každou noc, a nikdy neslyšela, co říká. Dnes ho slyšela.
+
+„Mé ruce patří lůžku. Lůžko patří Výši. Co vezmu, nedržím. Co dám, nevracím. Kdo trpí, dýchá za druhé.“
+
+„Ať drží,“ řekla Ruth.
+
+„Ať drží,“ odpověděly.
+
+Grace se dívala na svoje ruce. Patřily lůžku. Lůžko patřilo Výši. A Výše byla nebe, které je těžké, tak těžké, že ho musí držet bolest, aby nespadlo na město. Tak se to učilo. Grace se nikdy nezeptala, kdo to nebe pověsil tak nízko.
+
 Třetí noc ukazoval displej nad jedenáctkou pořád nulu.
 
 Grace zkusila všechno. Zkusila matku a Bohumil se jí vysmál, potichu a bez zlosti, jako se smějí staří lidé dětem. Zkusila dítě. Žádné neměl. Zkusila ženu. Měl ji, umřela před čtyřiceti lety na plíce a on o ní mluvil klidně, s něhou, jako o někom, kdo odešel jen do vedlejší místnosti, a číslo se nepohnulo. Zkusila jeho práci, jeho rozbitou kyčel, jeho strach ze smrti. Nula. Hladila ho po čele, po spáncích, po hřbetu ruky. Nula.

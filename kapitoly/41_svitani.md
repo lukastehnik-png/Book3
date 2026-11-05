@@ -62,6 +62,50 @@ Gideon jim to ukázal. Zvedl ruku. Prsty k sobě. Trochu prohnuté.
 
 ---
 
+Ve Škole Konce učila Helen.
+
+Ethan ji viděl jednou, když nesl rozpis z Ukazováku do Kolébky a šel kolem. Dveře třídy v prvním patře byly otevřené. Uvnitř ve dvojicích seděly děti, osmileté, devítileté, s modrými páskami, které jim byly ještě velké. Seděly naproti sobě na nízkých stoličkách. Jedno z každé dvojice mělo zavřené oči.
+
+To druhé mu drželo ruku na temeni. A nic neříkalo.
+
+Helen stála u okna. Bílé, krátké vlasy. Pravou ruku měla zvednutou. Ne vysoko. Jen od těla. A ta ruka se netřásla.
+
+Na zápěstích dětí se zavřenýma očima svítily malé pásky s čísly. Ethan je viděl od dveří. Nula. Nula. Dvě. Nula.
+
+Učitelka u okna nic nezapisovala.
+
+Jedna holčička z první řady otevřela oči a podívala se na Ethana ve dveřích. Měla suché tváře. Usmála se. Helen se otočila.
+
+Ethan šel dál.
+
+---
+
+Lydia se vrátila do studia Kroniky.
+
+Nikdo ji tam nepustil a nikdo ji nevyhnal. Nová hlasatelka, ta s třesoucím se hlasem, jí jednoho rána udělala místo u pultu, a pak si sedla vedle ní a dívala se, co Lydia dělá. Rozpis jí nepřišel. Útěcha mlčela.
+
+Kronika teď v noci ukazovala jiné věci. Ethan je viděl v Mělčině. Žádné ženy se zeleným chomáčem v ústech. Žádné tváře s čísly. Z vody stoupaly obrazy, které nikdo neznal, protože byly z Hlubiny, ze sklepa pod Útěchou, kam vedl starý kabel s písmenem B. Strom. Tráva, tenká jako vlasy, zelená, a vítr, který se v ní hýbal. Voda, která nebyla po kotníky, ale tak hluboká a tak velká, že na druhý břeh nebylo vidět, a vlnila se. Něco malého a černého na nejvyšším místě, které našlo, a ústa, která se otvírala a zavírala.
+
+Pod obrazy nebyla čísla. Ani jména.
+
+Lidé se na ně dívali. Někteří plakali. Někteří se otáčeli zády, jak se učili, protože obraz živého byl pořád v Zákoně a nikdo ho z něj nevyndal. Ale nikdo neupřesnil. Útěcha se neptala.
+
+A někdy, v noci, když Ethan ležel ve vodě na zádech, slyšel z hloubky hlas. Nízký. Vyšší. Nejnižší. Bez slov. Lydia ho tam pouštěla, každou noc, jednou, a pak ho nechala dozvučet.
+
+---
+
+Agnes dávala minutu dál.
+
+Ethan to věděl od June, která to měla od porodní asistentky z Tišiny Pouta, která to měla od Agnes. Psalo se to do dlaní, z ruky do ruky, až to došlo k němu. Útěcha výjimku nevrátila. Ani ji znovu nezrušila. Rozpis prostě přestal přicházet.
+
+Agnes neměla prsty. Jen palec. Nemohla dítě držet. Tak ho nechala držet matku. Položila ho matce na kůži, bříškem dolů, hlavičkou k bradě, a přikryla je prostěradlem, a počítala. Jedna. Dva. Tři.
+
+Když došla k šedesáti, nenatáhla ruce.
+
+Počítala dál.
+
+---
+
 Owen pracoval u kadlubů.
 
 Bez pravého palce se nedalo tlačit. Bez palce nebyl Palec. Dali ho do tavírny, k lití panelů, na místo, kde kdysi stál kluk, který lil kompozit tak, že na panelu nezůstala jediná bublinka.

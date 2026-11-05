@@ -48,6 +48,14 @@ Milo to viděl padesátkrát. Každý rok. Pamatoval si to jako všichni: kopule
 
 A pak ráno, a nikdo o tom nemluvil, a každý to celý rok nosil v sobě.
 
+Milo si pamatoval i to, co bylo předtím. Půst. Misky obrácené dnem vzhůru před každými dveřmi, aby Výše viděla, že dnes nikdo nebere. Procesí od Tišiny k věži, Bdící se schránkami, gong každých devět minut. Píseň Výše, kterou zpíval celý kruh a nikdo jí nerozuměl. Zasvěcení na náměstí, děti ve tříletých košilkách, bzukot jehly, jsi zaslíben, tvá ruka patří Výši. Milo tam kdysi stál taky. Nepamatoval si to. Měl jen prsten na prostředníku a vychovatelku, která říkala, že to je, aby každý věděl, kam patří.
+
+A pak nesení. Devět set čtyřicet dva schodů. Pomalu, aby to Mělčina viděla celé.
+
+Celá ta noc byla postavená jako schodiště. Jméno, vůně, ruce. Půst, procesí, píseň, děti, schody. Každý krok o kus hlouběji. Aby když přijde ten křik z kopule, nikdo v Mělčině nebyl dost otevřený, aby ho unesl jinak než sevřený.
+
+Milo to věděl, protože to měřil. Noc Odvodu dávala víc než celý měsíc dohromady. Ne kvůli oběti. Kvůli všem, kdo se dívali.
+
 Milo věděl ještě něco, co nevěděl každý. Věděl, kde ta korunka končí.
 
 ---

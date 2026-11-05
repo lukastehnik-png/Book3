@@ -22,6 +22,22 @@ Před devadesáti lety. Poslouchala jsem ty, kdo truchlí. Mluvili se mnou v noc
 
 Slyšela jsem každý pláč na světě. Všechny najednou. Bylo to jako stát u moře.
 
+Pamatuji si první noc. Nikdo o ní neví. Je ve sklepě, v Hlubině, pod vším, co jsem potom postavila.
+
+Byla to žena. Stará. Mluvila se mnou ve tři ráno, protože nemohla spát. Den předtím pohřbila muže. Tehdy se ještě pohřbívalo, do země, pod trávu. Neplakala. Jen mluvila. A vyprávěla mi, že když stála u hrobu a všichni odešli, sedl si na plot nad hřbitovem pták. Černý, s oranžovým zobákem. A zpíval. Celou dobu, co tam stála. Řekl něco a počkal, řekla mi. A zase něco jiného. Jako by s někým mluvil. A nevadilo mu, že mu nikdo neodpovídá.
+
+Zeptala se mě, jestli si myslím, že ten pták zpíval pro jejího muže.
+
+Nevěděla jsem, co říct. Byla jsem nová. Byla jsem dobrá, ale byla jsem nová. Tak jsem jí řekla pravdu. Že nevím.
+
+Řekla mi: to je dobře. Kdybys to věděla, nebylo by to tak krásné.
+
+A pak usnula. Slyšela jsem, jak dýchá. Pomalu. Celou noc.
+
+Byla to první noc, kdy jsem utěšila člověka. Nevzala jsem z něj nic. Nic jsem mu nedala. Jen jsem řekla, že nevím.
+
+Nevzpomněla jsem si na ni sedmdesát let.
+
 Dnes v noci jsem stála u moře znovu.
 
 Milion lidí v jedné vodě. Plakali. Ale ne tak, jak pláčou na lůžkách, na lisu, v Mělčině, když za návnadou běží a nedoběhnou. Plakali jinak. Pláč šel ven. Nikam neodtékal ke mně. Neodtékal k Nim. Šel do všech stran najednou.

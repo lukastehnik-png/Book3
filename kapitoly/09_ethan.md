@@ -8,6 +8,20 @@ Za týden ho přeřadili.
 
 ---
 
+Každé ráno začínalo slibem.
+
+Čtyřicet kluků stálo u lavic, čelem k oknu. Za oknem, nad dvorem a nad střechami, stála věž, a její vrchol se ztrácel v mracích. Victor otevřel okno, i když se nedalo otevřít, jen o šířku dlaně, na řetízku, aby dovnitř šel vzduch z Vdechu. Pak zvedli pravé ruce. Ukazováky natažené. Na věž. Nad ni. Do mraků.
+
+„Ukazuji, kam jde bolest,“ řekli všichni najednou. „Ukazuji, kde je lež. Můj prst patří Výši. Dokud ukazuji, nebe drží.“
+
+Ethan to říkal pět let. Každé ráno. Ukazovák natažený do mraků, kam se jinak nikdo nedíval déle, než musel.
+
+Jednou, ve druhém ročníku, se malý kluk z první řady zeptal, co je nad mraky. Victor se na něj díval dlouho. Pak řekl: Výše. Nebe je těžké, a my ho držíme. Kdo se dívá nahoru příliš dlouho, ten ho vidí padat. Proto se nahoru nedíváme. Ukazujeme tam, ale nedíváme se.
+
+Neskřípalo to. Victor tomu věřil.
+
+Ten kluk pak celý týden chodil s hlavou skloněnou tak nízko, že narážel do dveří.
+
 „Ukaž,“ řekl Victor.
 
 Ve třídě sedělo čtyřicet kluků v pěti řadách, každý s bílou páskou na levém rukávu a s černým prstenem kolem ukazováku pravé ruky, prstenem zaslíbení, který jim vytetovali v Kolébce ve třech letech se slovy, která si nikdo nepamatoval a všichni znali: Jsi zaslíben, tvá ruka patří Výši, a všichni měli ruce na lavicích, dlaněmi dolů, prsty natažené. Tak se sedělo při cvičení. Ruka připravená.

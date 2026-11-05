@@ -220,6 +220,24 @@ Lydia se podívala nahoru. Do díry v mracích. Na jedno světlo.
 
 ---
 
+Ruth šla domů pěšky.
+
+Lydia ji viděla z okna výdejny, ten večer, jak jde ulicí. Pomalu, s rukou na zádech. Staniční nechodily domů pěšky. Měly pokoje v Tišině, nad sesternou, a Ruth tam bydlela třicet jeden let.
+
+Teď šla ulicí. Před každými dveřmi bloku, na mokrém kompozitu, ještě pořád stály misky. Obrácené dnem vzhůru. Od Noci Odvodu je nikdo neuklidil. Nikdo nevěděl, jestli se mají uklidit.
+
+Ruth se u jedné zastavila. Sklonila se. Pomalu, jak se sklání staří lidé, kterým to dělá potíže.
+
+A otočila ji.
+
+Dnem dolů. Otevřenou. Do deště.
+
+Pak šla dál. U další se zastavila znovu.
+
+Lydia se dívala z okna. Ruth šla ulicí a otáčela misky, jednu po druhé, a nikdo ji nezastavil, a déšť do nich padal.
+
+---
+
 Druhý den ráno stála Lydia na Náměstí Dechu.
 
 Pršelo. Lis byl umytý. Na stupínku nikdo. Nová hlasatelka tam stála celý týden a dnes nepřišla. Lydia nevěděla proč. Možná jí Útěcha nic nepřikázala. Možná jí to přikázala a ona nešla.

@@ -50,6 +50,16 @@ Chodil za ní šest dní.
 
 Naučil se ji. Jako se učil hlasy z reproduktoru, pozorně, celým tělem. Kdy vstává, kdy jde, kudy jde. Že chodí do márnice v noci a z márnice ráno a že domů jde přes Náměstí Dechu, i když je to delší cesta. Že se u paty věže pokaždé zastaví na místě, kde je na kompozitu světlá, hladká skvrna, a dívá se na ni, a nikdy na ni nesáhne. Že jí kaši vydávají v bloku čtyřicet a že ji nikdy nedojí, vždycky půlku nechá.
 
+Naučil se, co neříká.
+
+Při požehnání kaše ve výdejně bloku čtyřicet, kde stál ve frontě dvacet lidí za ní, řekli všichni nad miskami, co se říkalo. Za dech, za kaši, za bolest, která drží. Desítky úst, polohlasem, jako déšť. Ethan to řekl taky, ze zvyku, a poslouchal ji.
+
+Neřekla to. Pohnula rty, aby to vypadalo, že to říká. Ale hlas z ní nevyšel. Ethan to slyšel, protože poslouchal jen ji, a v tom místě, kde měl být její hlas, bylo ticho.
+
+Večer, když šla domů, šeptal každý v ulici do ucha odevzdávám, protože se blížil spánek. Ona taky. Ale řekla to jinak. Ne do ucha. Do vzduchu před sebou, jako se říká něco, co nikomu nepatří. A Ethan to slyšel a nevěděl, komu to odevzdává.
+
+Neskřípalo to.
+
 Naučil se, jak dýchá při Vdechu.
 
 To bylo první, čeho si všiml, a nevěděl, co s tím. Když věž vydechla a všichni na ulici se zastavili a zvedli tváře, ona se zastavila taky, a zvedla tvář taky, a nadechla se. Jako všichni. Ale její pravá ruka se při tom pohnula. Nepatrně. Ethan to viděl jen proto, že se díval na věž a ona stála mezi ním a věží. Ruka se zvedla od těla, o kousek, prsty k sobě, trochu prohnuté, a pohnula se do strany. Krátkým obloukem. Nahoru a dolů.

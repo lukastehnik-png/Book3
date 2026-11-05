@@ -120,6 +120,16 @@ Owen seděl. Pak, pomalu, sevřel prsty kolem její ruky. Celou dlaní. A držel
 
 V úterý ráno šel na kalibraci.
 
+Kalibrace začínala slibem, jako každá věc ve Škole Tíhy. Vykonavatelé stáli v řadě u lisů, s rukama na deskách, a instruktor četl a oni opakovali. Owen to říkal dvacet let. Nikdy neslyšel, co říká.
+
+„Tlak je péče. Palec drží pěst. Pěst drží město. Město drží nebe.“
+
+„Kdo povolí, upustí.“
+
+„Nepovolíme.“
+
+Owen to řekl s ostatními. Ruku měl na desce. A cítil pod dlaní kov a pod kovem nic a myslel na její dlaň, do které v noci psal, a na to, že tlak nikdy nebyl péče. Péče byla ta chvíle předtím. Když prst ležel ve žlábku a ještě se nic nestalo.
+
 Suterén Školy Tíhy, dlouhá nízká místnost, řada lisů podél zdi. Owen položil model do žlábku. Teplý, protože ležel u zdi. Měkký. S naznačenými vráskami nad kloubem. Prostředník, nejdelší, tyčinka uvnitř nejsilnější.
 
 Položil dlaň na desku.

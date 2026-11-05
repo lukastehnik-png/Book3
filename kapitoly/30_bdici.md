@@ -118,6 +118,14 @@ Lydia to slyšela. Victor tomu věřil. Helen tomu věřila. Všech dvanáct tom
 
 Lydia klečela a cítila, jak se jí zvedá žaludek.
 
+Celý život slyšela lež. Hledala ji ve všem, v každém hlase, a když ji našla, ukázala na ni, a Palec pak tlačil. To byla její víra, pokud něco takového měla. Lež skřípe. Pravda ne. Kdo mluví pravdu, je čistý.
+
+Tady nikdo nelhal. Dvanáct lidí v kruhu, kteří věděli, komu dávají lidi, a dávali je, a věřili, že je to laskavost. Neskřípalo to. Bylo to čisté jako tón.
+
+Lydia poprvé pochopila, že pravda, ve které není kov, nemusí být dobrá. Jen upřímná.
+
+A že to, co hledala celý život, nebylo to, co hledat měla.
+
 ---
 
 „Litanie,“ řekl Victor. „Naučíš se ji tady. Celou. Ne tu, kterou zpívá dav. Tu skutečnou.“

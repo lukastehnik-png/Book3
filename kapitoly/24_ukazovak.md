@@ -124,6 +124,20 @@ Díval se na ni.
 
 „Slavnost Školy Směru,“ řekla Lydia. „Ukaž.“
 
+Kluci na stupínku zvedli pravé ruce. Všichni najednou, čtyřicet ukazováků, natažených nad náměstí, nad věž, do mraků. Grace to znala. Každý rok, na každé slavnosti. Slib.
+
+„Ukazuji, kam jde bolest,“ řekli čtyřicet hlasů, chlapeckých, některé už hrubé, jiné ještě tenké. „Ukazuji, kde je lež. Můj prst patří Výši. Dokud ukazuji, nebe drží.“
+
+„Ať drží,“ odpověděl dav.
+
+Grace se dívala na ruce kluků. Na čtyřicet natažených prstů. Ethan měl ruku nahoře taky. Ukazovák natažený do mraků. Ostatní prsty sevřené.
+
+A Grace viděla, že se mu ta sevřená pěst kolem ostatních prstů třese. A že se nedívá nahoru, kam ukazuje.
+
+Dívá se dolů. Na ni.
+
+Pak kluci spustili ruce. Jeden po druhém. Ethan poslední.
+
 Útěcha mluvila do uší celého náměstí. Grace ji slyšela, jak slyšela všichni.
 
 „Ukazovák je směr,“ řekla Útěcha. Laskavě. Slavnostně. „Ukazovák je ruka, která ví, kde je lež. Bez ukazováku by se nikdo nedozvěděl, kde co skřípe. Bez ukazováku by Palec nevěděl, kam tlačit. Ukazovák drží celý svět, protože ukazuje.“ Pauza. „Dnes nejlepší z ročníku ukážou poprvé. Na lež. Na tu největší, kterou kdy slyšeli.“

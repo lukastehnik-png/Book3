@@ -128,6 +128,24 @@ Plakat přestal.
 
 ---
 
+**Toby**
+
+Toby stál ve vodě a broukal.
+
+Nahlas. Poprvé v životě nahlas. Ne pod hukotem zdí, ne do dřezu, ne do polštáře. Do Mělčiny, kde stál milion lidí, a kdokoli z nich mohl slyšet.
+
+Nikdo ho neudal. Toby čekal, že šev zabzučí. Upřesni, prosím. Že se Útěcha zeptá někoho vedle něj. Gideona. Kohokoli.
+
+Šev mlčel.
+
+A vedle Tobyho, vlevo, kluk, kterého neznal, malý, s bílou páskou, z nižšího ročníku. Ten kluk se na Tobyho díval. Pak otevřel ústa.
+
+Nevěděl, jak se to dělá. Nikdo nevěděl. Jen dech, který měl tvar.
+
+Toby broukal dál, aby ten kluk měl čeho se chytit.
+
+---
+
 **Agnes**
 
 Agnes ležela ve vodě, protože si lehla první.

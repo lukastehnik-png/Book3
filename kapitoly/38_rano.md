@@ -136,6 +136,26 @@ Ruth stála s rukou za uchem. Pak ji spustila. Nevracela. Neřekla jméno. Jen s
 
 ---
 
+Cestou z márnice šel Owen kolem schodiště.
+
+Kovové dveře bez kliky byly otevřené. Owen se zastavil. Zespodu nešel horký vzduch. Šel vlažný. Owen sešel po studených schodech a zůstal stát na posledním.
+
+Síň byla tichá. Displeje ve tmě. Všechny ukazovaly čárku.
+
+Hladiči seděli. Na zemi, u zdí, na krajích lůžek. Rukavice měli v kapsách, nebo na zemi, nebo nikde. Nikdo nechodil mezi lůžky. Byl Vdech, Owen to cítil v chodidlech, a nikdo nepoložil prsty do okénka.
+
+Na devatenáctce seděl kluk.
+
+Seděl. Na lůžku, s nohama dolů, bez popruhů. Ruku s rámečkem měl v klíně, dlaní nahoru, a druhou rukou, tou se třemi prsty, si ten rámeček držel, opatrně, jak se drží něco, co se nesmí rozlít. Vedle něj na lůžku seděl Abel.
+
+Abel měl holé ruce. Držel v nich nůžky. Malé, medikovy. A pomalu, steh po stehu, odstřihával černé vlákno kolem rámečku na klukově předloktí.
+
+Kluk se díval, jak to dělá. Nic neříkal.
+
+Owen stál na schodu a díval se taky. Abel ho uviděl. Nezarazil se. Nesáhl za ucho. Jen zvedl oči, krátce, a pak se zase sklonil k rámečku a stříhal dál.
+
+Owen šel nahoru.
+
 V osm dvacet sedm se průduchy mezi žebry věže začaly otevírat.
 
 Owen stál na Náměstí Dechu. Lidé se probouzeli. Owen to viděl, jak přicházel z Tišiny. Zvedali se z chodníků, ze schodů, z lavic. Pomalu. Rozhlíželi se. Někteří si sahali na tváře a nevěděli, proč je mají mokré. Někteří se dívali nahoru.
