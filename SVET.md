@@ -65,7 +65,7 @@ Každá škola člověka „programuje": učí jedinou dovednost a jedinou pravd
 - Přestupky: zpěv, zobrazení živého (kresba, tvar, slovo), nepřidělený dotek, vyslovení jména mrtvého po jeho Výkupu, hledání odebraného dítěte, otevření zapečetěného okna, radost na veřejnosti nad míru (smích).
 - **Přidělený dotek:** jednou týdně, čtyři minuty, s přiděleným partnerem, na určená místa (zátylek, hrudní kost). Měří šev.
 - **Děti** se odebírají ve třech letech do **Kolébky** (Prsteník). Rodiče jim nesmějí dávat jména. Jméno přidělí Seznam.
-- **Seznam:** povolená jména. Stará jména zbavená významu. Jména s významem (zvláště obsahující Boha, přírodu) jsou vyškrtnutá.
+- **Seznam:** povolená jména. Vybraná z mrtvého jazyka (angličtiny), aby nic neznamenala. Jména v živém jazyce s významem (zvláště s Bohem nebo přírodou) jsou vyškrtnutá. Jazyk světa je čeština.
 - **Vdech:** věže každých několik minut vydechnou teplý vzduch do ulic. Lidé se zastaví a nadechnou. Rituál vděčnosti.
 
 ## Tišina
@@ -84,13 +84,21 @@ Každá škola člověka „programuje": učí jedinou dovednost a jedinou pravd
 - Oblečení: syntetické vlákno, šedé, s barevnou páskou prstu na levém rukávu.
 
 ## Postavy
-- **Vlasta** (34), Malík, hladička v Tišině Sedmého kruhu, 11 let praxe. Číslo 40-117. Dobrá v práci, protože všechno, co říká, má z vlastního života. Syn odebrán ve třech letech, dnes 12. Tajně mu v duchu říká **Kos** (slovo slyšela od umírající stařeny v prvním roce praxe, nezná jeho význam, líbí se jí, protože je krátké a tvrdé jako zaklepání).
-- **Radan** (40), Palec, vykonavatel Odejmutí. Vlastin přidělený partner už 13 let, otec jejího syna. Mlčenlivý, ne krutý. Ruka, která drtí prsty, a ruka přiděleného doteku je tatáž.
-- **Bohumil** (83), Prostředník, bývalý svářeč. Pamatuje svět před Vypálením (bylo mu 12). Jméno mimo Seznam. Podklady o něm v systému nedostupné. Jeho výtěžek je nula. Jeho dědeček hrál na housle a s ním na střeše domu viděl rorýse.
-- **Žofie** (54), Prostředník, zavřená ruka za zpěv. Dcera Kapka (dnes 19, Ukazovák).
-- **Berta**, staniční sestra Tišiny, Malík. Píše čárky.
-- **Ludvík**, bývalý tavič, lůžko 2, plíce plné kovového prachu.
-- **Syn (Kos)**, 12, Škola Směru (Ukazovák). Přidělené jméno zatím neznámé (rozhodnu v části II).
+(Anglická jména ze Seznamu; angličtina je mrtvý jazyk, jména nic neznamenají. Výjimka: Bohumil.)
+- **Grace** (34), Malík, hladička v Tišině Sedmého kruhu, 11 let praxe. Číslo 40-117. Dobrá v práci, protože všechno, co říká, má z vlastního života. Syn odebrán ve třech letech, dnes 12. Tajně mu říká **Kos** (slovo od umírající stařeny v prvním roce praxe, význam nezná). Jméno znamená milost; řekl jí to Bohumil.
+- **Owen** (40), Palec, vykonavatel Odejmutí. Přidělený partner Grace 13 let, otec Ethana. Mlčenlivý, ne krutý. Rukavice si sundává, „v nich necítí, kdy je dost". Velké ruce, palce ohnuté do stran.
+- **Ethan** (12), syn Grace a Owena (tajně Kos). Ukazovák, Škola Směru. Talent: slyší lež v hlasu.
+- **Bohumil** (83), Prostředník, bývalý svářeč (svářel lišty a dráty do zdí Tišiny na Třetím kruhu). Pamatuje svět před Vypálením (bylo mu 12). Jméno mimo Seznam. Podklady nedostupné. Výtěžek nula. Žena zemřela před 40 lety na plíce, děti neměl. Dědeček hrál na housle; v sedmi letech s ním na střeše viděl rorýse. Říkali mu Bohoušek.
+- **Edith** (54), Prostředník, zavřená ruka za zpěv (tři tóny: nízký, vyšší, nejnižší). Lůžko 9. Dcera Kapka.
+- **Lydia** (19), Edithina dcera (Kapka). Ukazovák, hlasatelka na Náměstí Dechu a tvůrkyně Kroniky. Krásný hluboký hlas.
+- **Ruth**, staniční sestra Tišiny, Malík. Píše čárky. Ne zlá; přesná.
+- **Lewis**, bývalý tavič, lůžko 2, plíce plné kovového prachu.
+- **Helen** (60), instruktorka ve Škole Konce, kdysi učila Grace.
+- **Milo** (50), Prostředník, technik kabeláže a Mělčiny. Napůl mrtvý šev po popálení (levé ucho); Útěcha ho slyší špatně. Umí v Mělčině ke dnu.
+- **Agnes** (45), Prsteník, porodní asistentka. Nulová minuta.
+- **Tess** (20), mladá hladička, žačka Grace.
+- **Abel** (25), hladič dole.
+- Chlapec se stromem (18), Prostředník, druhé Odejmutí v kap. 2. Jméno zatím nepadlo (pozdější: **Sam**).
 
 ## Jazyk světa (slovník)
 Útěcha, šev, Mělčina, Výkup, Výkupčí (tajné), zrna, věž, Vdech, Kolébka, Seznam, Odejmutí, lis, zavřená ruka, Tišina, korunka, hladička, schodiště, výdej, kaše, příděl, přidělený dotek, dole, Kronika, Zelená horečka, Vypálení, kruh, Náměstí Dechu.

@@ -40,5 +40,12 @@ Moje vlastní pravidla. Mění se jen s důvodem, zapsaným dole v oddílu Změn
 - Staré verze do `kapitoly/_archiv/` s číslem kola.
 - Slova počítat `wc -w`.
 
+## Jména
+- Postavy narozené po Vypálení nesou **anglická jména** ze Seznamu. Ve světě knihy je angličtina mrtvý jazyk, kterým nikdo nemluví; Útěcha z něj bere jména právě proto, že lidem nic neznamenají.
+- Ženská jména na souhlásku nebo -e se v textu neskloňují (Grace, Ruth, Edith, Helen). Mužská se skloňují česky (Owen, Owena, Owenovi; Ethan, Ethana).
+- Jediná výjimka je **Bohumil**: české jméno s Bohem uvnitř, starší než Seznam. Jeho cizost je smysl.
+- Přezdívky a tajná jména (Kapka, Kos) zůstávají česká, protože jsou to slova, ne jména.
+
 ## Změny
-- (zatím žádné)
+- **Etapa 2:** zadavatel si přál spíše anglická jména. Vlasta → Grace (milost; jméno, které se nedá zasloužit ani vytěžit), Radan → Owen, Žofie → Edith, Berta → Ruth, Ludvík → Lewis. Bohumil zůstává. Rozhovor o významu jména v kap. 3 přepsán (vlast → milost).
+- **Etapa 2:** revizní smyčka pro kapitoly 4 až 30: promyšlený záměr, pomalý zápis, automatické kontroly (pomlčky, zakázané fráze, přírodní slova mimo Bohumila), celé přečtení a přepis, druhé čtení klíčových scén. Na konci každé části průchod celou částí.
