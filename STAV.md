@@ -7,8 +7,8 @@ Cíl: 300 stran ≈ 90 000 slov, 40 kapitol (PLAN.md v4).
 |---|---|---|---|
 | I. Tišina | 1 až 8 | 18 081 | hotovo |
 | II. Pět prstů | 9 až 18 | 21 678 | hotovo |
-| III. Výkup | 19 až 28 | 19–27 hotovo | píše se 28 |
-| IV. Rorýs | 29 až 40 | 0 | |
+| III. Výkup | 19 až 28 | hotovo | |
+| IV. Rorýs | 29 až 40 | 29–30 hotovo | píše se 31 |
 | **Celkem** | | **39 759** | ≈ 132,5 strany |
 
 Zbývá ≈ 50 000 slov ve 20 kapitolách (průměr 2 500).
@@ -26,5 +26,6 @@ Kontrola: `python3 nastroje/kontrola.py`.
 - **Tess:** začíná nedělat schodiště, učí se od Grace.
 - **Den očisty (k.22):** 27 Odejmutí, zákon „zobrazení živého pohybem", lidé se sevřeli, v Mělčině nikdo nezvedá ruce.
 
-## Další krok
-Kap. 25 „Palec" (pátý prst, zavřená ruka). Pak 26 Lůžko jedenáct, 27 Otevřené ruce, 28 Dole. Potřeba průměr ≈ 2 600 slov/kap. (stav 53 687 po kap. 24).
+## Další krok (stav 66 960 slov po kap. 30)
+Kap. 31 „Kos" (Ethan dole u matky, fyzické setkání; bude svědkem Vystoupení). Pak 32 Čtvrtek (Owen, Nosič Výše), 33 Bdění (Tess), 34 Noc Odvodu, 35 Rorýs (vrchol), 36 Tma, 37 Ticho (Útěcha), 38 Ráno, 39 Jméno, 40 Svítání. Průměr ≈ 2 300 slov.
+Klíčové pro finále: Noc Odvodu za 21 dní od kap. 29; Mělčina jedna pro všechny; Grace na lůžku v kopuli, korunka přímo do oka; Lydia hlas Litanie (zpívá tvar matčiných tónů); Milo sepne Bohumilovu svorku v patě věže (kabel „B." z Hlubiny do studia Kroniky; Lydia ho našla ve studiu); Owen Nosič Výše; Ethan svědek; Victor a Helen Bdící; Ruth přepíná korunky; Abel; Sam dole na 19.
