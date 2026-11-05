@@ -36,6 +36,26 @@ Kos, kos, černej kos.
 
 ---
 
+**Tess**
+
+Tess měla ruce na čele staré ženy na devítce a cítila, jak pod nimi teče.
+
+Ne do korunky. Ne do zdi. Ven. Tess to necítila jako hladička, ta, která jedenáct měsíců cítila, jak jí lůžka pod rukama dávají, jak se pod dlaní svírají. Cítila to jako něco, co jí protéká dlaněmi, skrz, a jde dál, do ní, a z ní ven, do oddělení, do tmy, kamkoli.
+
+Stará žena otevřela oči. Podívala se na Tess.
+
+„Kdo to zpívá?“ zeptala se.
+
+Tess nevěděla. Slyšela to taky. Nebylo to v uších. Bylo to v rukou. Tón, nízký, vyšší, nejnižší, a pod ním jiný, hluboký, táhlý, a nad ním křik, vysoký, jako když se děti honí venku.
+
+„Nevím,“ řekla Tess. A pak, protože to byla pravda, a protože pravda se dala říct: „Někdo, koho znám.“
+
+Sáhla si na hruď, pod zástěru, do kapsy. Prsty jí narazily na pramen vlasů. Tenký jako nic.
+
+Stará žena se usmála. Zavřela oči. A Tess nechala ruce ležet.
+
+---
+
 **Sam**
 
 Sam stál v Mělčině.
@@ -181,6 +201,54 @@ A voda dýchala.
 Milo se opřel o zábradlí. Pak se svezl na zem, na mokrý kov, zády k nádrži, a cítil, jak se mu chvějí záda od bublinek, které stoupaly za ním.
 
 Zasmál se. Krátce, chraptivě. Smích mu přešel v kašel. A pak už nebyl smích ani kašel.
+
+---
+
+**Mělčina**
+
+Ve vodě, kde stálo a leželo celé lidstvo, se ozval hlas.
+
+Laskavý. Ženský, bez věku, trpělivý. Tak blízko každého ucha, jako by stál za zády a rty se dotýkal chrupavky. Milion lidí ho slyšelo najednou.
+
+„Do Výše,“ řekla Útěcha.
+
+Tak to bylo v Řádu. Když oběť vydechne, Útěcha řekne do Výše a celé lidstvo v Mělčině odpoví ať drží. Jedním hlasem. Jako déšť.
+
+Ticho.
+
+Voda šuměla. Housle táhly. Rorýsi křičeli nad střechami, které neexistovaly.
+
+Nikdo neodpověděl.
+
+„Do Výše,“ řekla Útěcha znovu. A milion lidí v tom slyšelo něco, co nikdy neslyšeli, protože to tam nikdy nebylo. Hlas začal o zlomek vteřiny později, než měl.
+
+Nikdo neodpověděl.
+
+Útěcha to neřekla potřetí.
+
+---
+
+**Lydia**
+
+Lydia se dívala nahoru.
+
+Oko kopule bylo tmavé. Nad ním černo a světla. Statisíce. Rozsypaná jako sůl. Lydia je viděla jednou, při zasvěcení, a nikomu to neřekla, ani Grace, ani nikomu, protože se bála, že kdyby to řekla, už je nikdy neuvidí.
+
+Teď je viděla celé, bez paprsku, a nic jí je nezakrývalo.
+
+Hlas měla pryč. Zpívala tak dlouho, že jí v hrdle zbyl jen vzduch. Dýchala ústy a cítila, jak ji pálí hrtan, a nevadilo to.
+
+Pořezaná dlaň pod obvazem tepala. Uprostřed, kde jednou bude okénko. Lydia ji zvedla. Rozvázala obvaz. Nechala ho spadnout na leštěnou podlahu.
+
+Otočila dlaň nahoru. K oku. K černu. Ke světlům.
+
+Rána byla otevřená. Krev tekla po zápěstí. Lydia ji nechala téct.
+
+Nízký, pomyslela si, protože neměla hlas. Vyšší. Nejnižší.
+
+Matka, pomyslela si potom. Jen to slovo. Nic víc.
+
+Neskřípalo to. Nikdo to neslyšel. Nikdo to nepotřeboval slyšet.
 
 ---
 
