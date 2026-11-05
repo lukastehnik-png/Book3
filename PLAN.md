@@ -35,7 +35,7 @@ Perspektiva: převážně Grace. Vložené kapitoly z pohledu Ethana (syn) a Owe
 22. **Čistka.** Agnes odvedena, Milovi „opraví" šev, Sam zmizí dole. Strach.
 23. **Ruth.** (Ruth.) Kamínky v kapse. Její čárky. Proč kdysi udala stařenu s kosem spolu s Grace. Její rozhodnutí.
 24. **Ukazovák.** Ethan veřejně ukáže na matku. Grace mu kývne. Čtvrtý prst.
-25. **Palec.** Pátý prst. Zavřená ruka. Owen pláče.
+25. ✓ **Pěst.** (Owen.) Grace zpívá při Vdechu, nikdo kromě Owena neupřesní (na její prosbu). Palec drží 12 s. Výtěžek nula. Zavřená ruka.
 26. **Lůžko jedenáct.** Grace pacientkou na Bohumilově lůžku. Hladí ji Tess. Grace nejdřív dává. Hrůza.
 27. **Otevřené ruce.** Grace se učí, co Bohumil: nechat téct. Nula. Ruth.
 28. **Dole.** Grace dole. Abel. Rytmus. Owen ji navštíví.
