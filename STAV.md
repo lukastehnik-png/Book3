@@ -6,7 +6,7 @@ Cíl: 300 stran ≈ 90 000 slov, 38 kapitol (viz PLAN.md v3).
 | Část | Kapitoly | Slov | Stav |
 |---|---|---|---|
 | I. Tišina | 1 až 8 | 18 081 | napsáno, revidováno, uzavřeno |
-| II. Pět prstů | 9 až 18 | 0 | další |
+| II. Pět prstů | 9 až 18 | 9–17 hotovo (≈19 300) | píše se kap. 18 |
 | III. Výkup | 19 až 28 | 0 | |
 | IV. Rorýs | 29 až 38 | 0 | |
 
