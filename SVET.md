@@ -102,3 +102,8 @@ Každá škola člověka „programuje": učí jedinou dovednost a jedinou pravd
 
 ## Jazyk světa (slovník)
 Útěcha, šev, Mělčina, Výkup, Výkupčí (tajné), zrna, věž, Vdech, Kolébka, Seznam, Odejmutí, lis, zavřená ruka, Tišina, korunka, hladička, schodiště, výdej, kaše, příděl, přidělený dotek, dole, Kronika, Zelená horečka, Vypálení, kruh, Náměstí Dechu.
+
+## Mrtví
+- Mrtví z Tišin jdou do pecí v tavírnách Prostředníku. Popel se odváží do míchárny a míchá do kompozitu, ze kterého se staví panely bloků, zdi, chodníky. Celé město je postavené z mrtvých. Nikdo na to nemyslí.
+- V márnici Tišiny nejsou kabely ve zdech (mrtví nedávají), proto je tam zima.
+- Kronika ukazuje tváře umírajících s číslem. Žádná tvář nemá pod sebou méně než 40; nula se nikdy neukazuje (Lydia vybírá tváře).
