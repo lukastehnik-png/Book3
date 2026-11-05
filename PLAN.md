@@ -36,23 +36,26 @@ Perspektiva: převážně Grace. Vložené kapitoly z pohledu Ethana (syn) a Owe
 23. **Ruth.** (Ruth.) Kamínky v kapse. Její čárky. Proč kdysi udala stařenu s kosem spolu s Grace. Její rozhodnutí.
 24. **Ukazovák.** Ethan veřejně ukáže na matku. Grace mu kývne. Čtvrtý prst.
 25. ✓ **Pěst.** (Owen.) Grace zpívá při Vdechu, nikdo kromě Owena neupřesní (na její prosbu). Palec drží 12 s. Výtěžek nula. Zavřená ruka.
-26. **Lůžko jedenáct.** Grace pacientkou na Bohumilově lůžku. Hladí ji Tess. Grace nejdřív dává. Hrůza.
-27. **Otevřené ruce.** Grace se učí, co Bohumil: nechat téct. Nula. Ruth.
-28. **Dole.** Grace dole. Abel. Rytmus. Owen ji navštíví.
+26. ✓ **Lůžko jedenáct.** Korunka zevnitř. Tess dělá schodiště podle podkladů z Graceina života; Grace dá 81. Grace učí Tess rorýse. Útěcha znovu nabízí zapomnění; „Zítra."
+27. ✓ **Otevřené ruce.** Owen (návštěva povolená kvůli výdeji) jí dá kamínky, píše: Ethan dělá gesto u plotu, „všem". Kos jako píseň, ne ztráta: nula. Tess neupřesní. Grace Útěše: „Ne. Laskavost nic nechce." Zítra dolů. V Mělčině si Ethan lehne, v Hlubině spolu slyší kosa.
+28. **Dole.** Grace dole, Abel. Rytmus Vdechu, okénko. Nula i u okénka. Sam na devatenáctce. Abel pláče. Dole se šíří ticho.
 
-## Část IV: Rorýs (kap. 29 až 38, cíl ≈ 24 000 slov)
-29. **Nosná vlna.** Milo (mrtvé ucho), Lydia, Owen, Ruth: korunka vede přímo do paprsku. Plán.
-30. **Hlas.** (Lydia.) Kronika, studio, příprava. Tři tóny.
-31. **Kos.** (Ethan.) Dolů „pozorovat". Matka mu řekne, co znamená Kos.
-32. **Čtvrtek.** (Owen.) Poslední přidělený dotek, dole, nepřidělený.
-33. **Poslední noc.** Příprava, Výkup, Mělčina se plní spícími.
-34. **Rorýs.** Grace umírá. Ethan pohybuje její paží. Lydia zpívá. Hlubina otevřená. Vrchol knihy.
-35. **Tma.** Mozaika všech. Věže nesvítí. Útěcha zaváhá. Záznam Výkupčích.
-36. **Ráno.** Žádná revoluce. Tresty. Ale paměť.
-37. **Jméno.** Jméno Grace se nevrací. Lidé ho říkají. Gesto při Vdechu.
-38. **Svítání.** Ethan na střeše. Ruka ve vzduchu. Vedle další ruce.
+## Část IV: Rorýs (kap. 29 až 40, cíl ≈ 30 000 slov)
+29. **Nosná vlna.** (Milo.) Měřák, Bohumilova minuta, záporný tok. Milo, Ruth, Owen: korunka vede přímo do paprsku; umírání v úžasu v noci Výkupu = to, čeho se Výkupčí bojí. Mělčina nese spící. Plán.
+30. **Hlas.** (Lydia.) Kronika, studio, Lydia připravuje vysílání do Mělčiny. Tři tóny. Matka.
+31. **Kos.** (Ethan.) Jako absolvent Ukazováku smí dolů „pozorovat". Najde matku. Fyzické setkání. Řekne mu, co znamená Kos. Drží její zavřenou ruku.
+32. **Čtvrtek.** (Owen.) Nová přidělená partnerka; odmítne. Poslední čtvrtek dole, nepřidělený dotek. Abel.
+33. **Tess.** (Tess.) Hladičky nahoře přestávají dělat schodiště, jedna po druhé. Ruth píše nuly. Útěcha připravuje čistku Tišiny.
+34. **Poslední noc.** Příprava: Ruth přepne korunku, Milo v páteři, Lydia ve studiu, Ethan dole u ní, Owen u lisu? Výkup začíná.
+35. **Rorýs.** Grace umírá. Ethan pohybuje její paží. Lydia zpívá do Mělčiny. Hlubina otevřená (kos, housle). Vrchol knihy.
+36. **Tma.** Mozaika všech spících. Věže nesvítí. Útěcha zaváhá.
+37. **Ticho.** (Útěcha.) Krátká kapitola z pohledu Útěchy: zpráva Výkupčích, strach, její volba.
+38. **Ráno.** Žádná revoluce. Tresty. Ale paměť.
+39. **Jméno.** Jméno Grace se nevrací. Lidé ho říkají. Gesto při Vdechu.
+40. **Svítání.** Ethan na střeše. Ruka ve vzduchu. Vedle další ruce.
 
 ## Záznam změn
 - v1 (etapa 1): první návrh, 4 části.
+- v4: rozšířeno na 40 kapitol (průměrná délka kapitoly ≈ 2 300 slov); kap. 25 přejmenována na Pěst; přidány Tess a Ticho (Útěcha).
 - v3: rozšířeno na 38 kapitol podle skutečné délky kapitol; přidány kap. Sam, Ruth, Otevřené ruce, Hlas, Čtvrtek, Jméno.
 - v2 (etapa 2): rozpracováno na 30 kapitol s cíli rozsahu; anglická jména; nové postavy Ethan, Lydia, Milo, Helen, Agnes, Tess, Abel.

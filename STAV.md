@@ -1,14 +1,14 @@
 # STAV PRÁCE
 
 ## Etapa 2: celá kniha (běží)
-Cíl: 300 stran ≈ 90 000 slov, 38 kapitol (PLAN.md v3).
+Cíl: 300 stran ≈ 90 000 slov, 40 kapitol (PLAN.md v4).
 
 | Část | Kapitoly | Slov | Stav |
 |---|---|---|---|
 | I. Tišina | 1 až 8 | 18 081 | hotovo |
 | II. Pět prstů | 9 až 18 | 21 678 | hotovo |
-| III. Výkup | 19 až 28 | 19–24 hotovo | píše se 25 |
-| IV. Rorýs | 29 až 38 | 0 | |
+| III. Výkup | 19 až 28 | 19–27 hotovo | píše se 28 |
+| IV. Rorýs | 29 až 40 | 0 | |
 | **Celkem** | | **39 759** | ≈ 132,5 strany |
 
 Zbývá ≈ 50 000 slov ve 20 kapitolách (průměr 2 500).
